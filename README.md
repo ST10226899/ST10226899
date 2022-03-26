@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ST10226899
+- 👋 Treiu
 - 👀 Anime's ma ish...
 - 🌱 DIS Padawan
 - 💞️ Asthete
